@@ -31,7 +31,7 @@ Page 1 – Mechanics
 
 Page 2 – AI Content Disclaimer
 
- All promotional images, teaser content, story graphics, banners, and character art posted on Twitter (X) for BLING are created using artificial intelligence tools. These images do not depict real individuals and are not sourced from copyrighted material. 
+ All promotional images, teaser content, story graphics, banners, and character art posted on Twitter (X) , Reddit, Telegram and all other socials for BLING are created using artificial intelligence tools. These images do not depict real individuals and are not sourced from copyrighted material. 
 
 No real people—public figures, celebrities, influencers—have endorsed or participated in BLING. Any resemblance is coincidental and a natural result of AI outputs. 
 
